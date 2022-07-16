@@ -1,4 +1,4 @@
-![Eɴᴜᴋᴀ Rᴀɴᴀsɪɴɢʜᴇ 🇱🇰] (https://telegra.ph/file/f695bb3594ce2d0b298ee.jpg)
+![Eɴᴜᴋᴀ Rᴀɴᴀsɪɴɢʜᴇ 🇱🇰](https://telegra.ph/file/f695bb3594ce2d0b298ee.jpg)
 # Hi there 👋, I'm Eɴᴜᴋᴀ Rᴀɴᴀsɪɴɢʜᴇ 
 
 Hey, I'm Eɴᴜᴋᴀ Rᴀɴᴀsɪɴɢʜᴇ , a Web Developer and telegram bot developer from India.
